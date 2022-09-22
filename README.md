@@ -1,2 +1,2 @@
 # Mikasa-Shit-code
-beta version
+the leak is due to a more powerful version at the moment
